@@ -2,8 +2,21 @@
 
 ### Learn the Market. Build the Skill.
 
-NVM Trading is a trading education platform focused on helping students understand the markets, develop trading knowledge, learn risk management, and build a disciplined trading process.
 
+this course is filled with everything you need to know about trading and offers opportunities , and strategies that are guaranteed to ensure you are able to earn a higher level of success.
+
+Signing up by clicking here and subscribing now will be the best thing that you could do to help you achieve your goals!! 
+
+ You can learn everything you need to know about day trading and how to make money with this easy step by step guide to how trading works and how to build your very own portfolio!! 💼  Doesn't matter if you're 50+ years old or 17 help make your business ideas thrive or help you grow 
+in your free time with this easy beginner friendly guide to help you get started today!!
+
+More: 
+If you are confused about the subscription it is a renewal for every piece of knowledge that is being offered to you.
+For example: 
+The " Lets Get Started! " course is $30.00 
+It includes everything any mentor should tell you about before you start learning yourself.(the basics) + How to create a portfolio (swing/day) 
+And The " How to use voltality to your advantage" is an advanced concept course including my knowledge for $70.00
+If you would like access to all of my courses click here .
 ## What You'll Learn
 
 - Market fundamentals
